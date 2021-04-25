@@ -1,2 +1,1 @@
-# hello-world
-Getting started with GitHub
+I am a registered nurse with five years of experience, mainly in cardiac nursing. My experiences during the Covid 19 pandemic shined such a bright light on all of the ways healthcare is broken that I could no longer deny my need to break into a new field in order to preserve my health and well-being. 
